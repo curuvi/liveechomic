@@ -1,4 +1,4 @@
-# Terms of Use for Live Echo Mic
+# Terms of Use for Athi Live Echo Mic
 
 **Last Updated:** July 4, 2026
 
